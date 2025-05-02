@@ -27,5 +27,5 @@ Em breve, você encontrará aqui:
 
 ## 📬 Contato
 
-📧 barbararodrigues@email.com (substitua pelo seu real)  
+📧 barbaradnr@hotmail.com 
 🔗 [LinkedIn - BarbaraRodrigues-Adv](https://www.linkedin.com/in/barbararodrigues-adv)
